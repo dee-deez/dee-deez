@@ -18,7 +18,7 @@
    <p align="center">
      <p align="center">
        
-  <img width="1500" height="500" alt="image" src="https://files.catbox.moe/fg9fc7.jpg" />
+  <img width="1500" height="500" alt="image" src="https://cdn.phototourl.com/free/2026-08-26-fd0b087a-2fd1-45d6-ba52-07b1440f3454.jpg" />
   </div>
 
   <p align="center">
