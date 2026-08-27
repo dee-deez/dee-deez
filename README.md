@@ -42,8 +42,8 @@
   </div>
 
   <p align="center">
-    <a
-
+    
+<img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-08-27-e53d3373-2578-4392-b3d1-d87af62439d0.png" />
  </div>
 
  <p align="center">
