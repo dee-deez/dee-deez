@@ -7,13 +7,9 @@
 </div>
 <p align="center">
 <img width="3639" height="1842" alt="image" src="https://cdn.phototourl.com/free/2026-08-27-e5991e0b-fd5d-4bdb-9b65-44822698b48b.png" />
-     
-<p align="center">
-<p align="center">
- <p align="center">
-   <p align="center">
-     <p align="center">
-  <a/>
+       <p align="center">
+    <a
+    
     
   [ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤ
 </div>
