@@ -57,3 +57,12 @@
    <p align="center">
      <p align="center">
     ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ　 　 ᶦʷᵉᶜ
+     </div>
+
+     <p align="center">
+<p align="center">
+ <p align="center">
+   <p align="center">
+     <p align="center">
+
+  <img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-08-27-e53d3373-2578-4392-b3d1-d87af62439d0.png" />
