@@ -4,7 +4,7 @@
 
 <div>
 <p align="center">
-<img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-08-27-dcb00cee-c5e7-435b-849c-c10128327c2c.png" />
+<img width="5510" height="2159" alt="image" src="https://cdn.phototourl.com/member/2026-08-27-dcb00cee-c5e7-435b-849c-c10128327c2c.png" />
 
 &nbsp;<div align="center">
   [![](https://komarev.com/ghpvc/?username=scoobynatural&logo=GitHub&label=%20✰&color=a84459&logoColor=yellow&style=round)](https://github.com/scoobynatural)
