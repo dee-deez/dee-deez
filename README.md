@@ -37,7 +37,7 @@
  <p align="center">
    <p align="center">
      <p align="center">
-             sam　 　 <img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/free/2026-08-27-60fe93db-85eb-4dba-85e0-cfa7e5aa0c44.png" />　 　 orion
+             sam　 　 †　 　 orion
   
   </div>
 
