@@ -15,7 +15,7 @@
      <p align="center">
   <a/>
     
-  [ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤㅤ[rentry](https://rentry.co/stcky)ㅤㅤ[pronounspage](https://en.pronouns.page/@sadcartoon)
+  <a/>[ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤㅤ[rentry](https://rentry.co/stcky)ㅤㅤ[pronounspage](https://en.pronouns.page/@sadcartoon)
 </div>
 <p align="center">
 <p align="center">
