@@ -52,6 +52,8 @@
 </div>
 
 <p align="center">
-  <a
-
-　 　 　 　ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ
+<p align="center">
+ <p align="center">
+   <p align="center">
+     <p align="center">
+    ᶜ×ʰ ᵉⁿᶜᵒᵘʳᵃᵍᵉᵈ
