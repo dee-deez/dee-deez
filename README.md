@@ -10,8 +10,7 @@
        <p align="center">
     <a
     <img width="3639" height="1842" alt="image" src="https://cdn.phototourl.com/free/2026-08-27-c1371b5a-b7d1-4754-80c1-40f79ee20df8.png" />
-       <p align="center">
-    <a
+       
     
     
   　 　 [ᵃᵗᵃ](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://heartsofgold.straw.page)ㅤ
