@@ -8,7 +8,13 @@
 <p align="center">
 <img width="3639" height="1842" alt="image" src="https://cdn.phototourl.com/free/2026-08-27-e5991e0b-fd5d-4bdb-9b65-44822698b48b.png" />
      
-[ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤㅤ[rentry](https://rentry.co/stcky)ㅤㅤ[pronounspage](https://en.pronouns.page/@sadcartoon)
+<p align="center">
+<p align="center">
+ <p align="center">
+   <p align="center">
+     <p align="center">
+       
+  [ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤㅤ[rentry](https://rentry.co/stcky)ㅤㅤ[pronounspage](https://en.pronouns.page/@sadcartoon)
 </div>
 <p align="center">
 <p align="center">
