@@ -11,7 +11,7 @@
     <a
     
     
-  [ata](https://purgatory.atabook.org/)ㅤㅤ[strawpage](https://heartsofgold.straw.page)ㅤ
+  [ata](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [strawpage](https://heartsofgold.straw.page)ㅤ
 </div>
 <p align="center">
 <p align="center">
