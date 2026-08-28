@@ -20,7 +20,7 @@
        
     
     
-  　 　 [ᵃᵗᵃ](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://heartsofgold.straw.page)ㅤ
+  　 　 [ᵃᵗᵃ](https://purgatory.atabook.org/)ㅤㅤ　 　 　 [ˢᵗʳᵃʷᵖᵃᵍᵉ](https://straw.page/make?id=orionpax1)ㅤ
 </div>
 <p align="center">
 <p align="center">
