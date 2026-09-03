@@ -43,7 +43,7 @@
 
   <p align="center">
     
-<img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/member/2026-08-27-e53d3373-2578-4392-b3d1-d87af62439d0.png" />
+<img width="4764" height="2201" alt="image" src="https://cdn.phototourl.com/free/2026-09-03-118e43f8-de81-465c-94a9-5a9d481778da.png" />
  </div>
 
  <p align="center">
