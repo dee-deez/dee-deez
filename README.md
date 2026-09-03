@@ -7,7 +7,7 @@
 <img width="5510" height="2159" alt="image" src="https://cdn.phototourl.com/free/2026-09-03-c0a7b492-4de3-405a-a608-b2e331353996.png" />
 
 &nbsp;<div align="center">
-  [![](https://komarev.com/ghpvc/?username=scoobynatural&logo=GitHub&label=%20✰&color=a84459&logoColor=yellow&style=round)](https://github.com/scoobynatural)
+  [![](https://komarev.com/ghpvc/?username=scoobynatural&logo=GitHub&label=%20✰&color=b3b7a4&logoColor=yellow&style=round)](https://github.com/scoobynatural)
 <p align="center">
 
 <p align="center">
